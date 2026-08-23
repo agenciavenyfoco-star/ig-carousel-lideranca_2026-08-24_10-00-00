@@ -1,0 +1,1 @@
+# ig-carousel-lideranca_2026-08-24_10-00-00
